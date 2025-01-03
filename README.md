@@ -1,3 +1,3 @@
-# WesleyDeng
+# Wesley Hanwen Deng
 
-This personal website for Wesley Deng is currently under construction. 
+This personal website for Wesley Hanwen Deng is currently under construction. 
